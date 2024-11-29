@@ -12,4 +12,4 @@ dudarussi1607@icloud.com
 
 00001228020541sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/chico-moedas-aquariano-nato-aquariano-chico-chico-coins-gif-14377694355876022045)
+![](https://tenor.com/pt-BR/view/chico-moedas-gifs-gif-11947660829974475926)
